@@ -75,6 +75,8 @@ I don't beleive in ragglespanktooth! Me three! Me Four!, Me seven, Me and they j
 
 The Queen of Hearts hears of most musing that go around Wonderland. If there was just some way you could get her attention. Maybe you can come up with something real quick.
 
+Will you, Won't you, Join the dance!
+
 # ACT 3
 ## egirls Z & W & E stood there silently.
 <img src="https://github.com/nathanielburman/horror-evil-witch-of-wonderland/blob/main/1113dream_TradingCard.jpg" width="400px"></img>
