@@ -1,14 +1,23 @@
+# ACT 1 ACT ONE
 # horror-evil-witch-of-wonderland
+### She falls into the hole.
 The Cat of Wonderland attracts other cats and cat girls and kittens. The Cat of Wonderland is special you know. And the evil witch of Wonderland is more evil than the Queen of Hearts.
 
 <img src="https://github.com/nathanielburman/horror-evil-witch-of-wonderland/blob/main/12dream_TradingCard.jpg" width="500px"></img>
 
 eboy 1 & eboy 2 are in love=love with each other. Its the same. Then they come around a corner, a giant hedge, all green with leaf walking along the stone street and then a big fat whale drops on their heads and they die. The whale however, was doing alright and asked out loud, How did I Get Here?
 
-THeres a maze. many of the people you know in real life are in this story. Your brain pulls them into the story and pop. They are with us now.
+There's a maze. many of the people you know in real life are in this story. Your brain pulls them into the story and pop. They are with us now.
 
 Your going to need to eat in three hours. What are you doing right now?
 
 There is a path surrounded by cats.
 
 <img style="vertical-align:middle" src="https://github.com/nathanielburman/horror-evil-witch-of-wonderland/blob/main/11111dream_TradingCard.jpg" width="450px"></img>
+
+# ACT 2
+## She meets the witch
+She meets the witch and all the cats meet the witch in a epic battle where cats jumped and pounce onto the enemy with their fluffy coats. Portal cats emerge from teh shadows and more cats attack the witch.
+
+# ACT 3
+## 
