@@ -21,5 +21,10 @@ She meets the witch and all the cats meet the witch in a epic battle where cats 
 
 <img src="https://github.com/nathanielburman/horror-evil-witch-of-wonderland/blob/main/1112.png" width="450px"></img>
 
+Portal cat attacks an eboy3 with 100 ap and eboy3 blows up into blood. Another eboy jumps to protect the evil witch! And the portal cat uses their special ability Astral Sear 75 ap for 1 sp. Her special points go down from 12 to 11. Eboy 4 has seen better days. Most normal humans have their age = their level. 
+So the logic goes, if your 16 years old, that is also your level. A Portal Cat can hit with attack points and has a health level which matches their age of Earth years basically.
+
+This portal cats special attack rips through the two more eboys standing gaurd infront of the witch and the witch takes a massive hit.
+
 # ACT 3
 ## 
