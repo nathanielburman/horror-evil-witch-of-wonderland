@@ -26,5 +26,19 @@ So the logic goes, if your 16 years old, that is also your level. A Portal Cat c
 
 This portal cats special attack rips through the two more eboys standing gaurd infront of the witch and the witch takes a massive hit.
 
+220rcp1final.png Real Cats & Portals ipfs://QmcjdXy9vYWNzVkWefxhSz7iPwoGB3HxQ5f6rxpNncXqNG/6.png
+
+PURRR Eyes
+
+PREY Mouse
+
+SPIRIT Dark
+
+Eyes of the Astral Seer 75ap sp1: Lore: The \"Eyes of the Astral Seer\" are said to see beyond the physical realm. These cats are known as seers and mystics, with eyes that can perceive hidden truths and alternate dimensions. They are revered for their wisdom and insight.\nAbility: \"Eyes of the Astral Seer\" allows the cat to gaze into the future and predict the movements of their foes. It enhances their accuracy and evasion, granting them an advantage in combat.
+
+Sun Portal Master +Player: Solarius the Radiant Sovereign\nLore: Solarius is the Sun Portal Master, capable of harnessing the power of the sun. Their most potent ability, \"Solar Flare Ascension,\" bathes the battlefield in blinding light, strengthening their allies and reducing their enemies to cinders. It is said that during this moment, Solarius becomes an embodiment of the sun itself, incinerating all in their path.
+
+Drakon the Abyssal Sovereign\nDrakon is an ancient cat with scales like obsidian. They command the darkest depths of the ocean, guarding the Abyssal Portal to unknown realms.
+
 # ACT 3
 ## 
