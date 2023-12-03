@@ -40,7 +40,13 @@ Sun Portal Master +Player: Solarius the Radiant Sovereign\nLore: Solarius is the
 
 Drakon the Abyssal Sovereign\nDrakon is an ancient cat with scales like obsidian. They command the darkest depths of the ocean, guarding the Abyssal Portal to unknown realms.
 
+The witch and her homosexual eboys ran off laughing. The witch turned into darkness.
+
 <img src="https://github.com/nathanielburman/horror-evil-witch-of-wonderland/blob/main/1115dream_TradingCard.jpg" width="400px"></img>
+
+The maze winded but I want more kittens right now. There were kittens all over the place. The kittens littered the area. And the cats play a different game in wonderland as they escape a doom of their own. Everyone who enters Wonderland knows of the doom that comes for them if they can't escape. Wonderland is an escape room you never escape from.
+
+The maze is a constant stream of data that goes into your eyes every second of the day. Even if you close your eyes in Wonderland, you will see still. There are two mazes in wonderland, one you can see and the other is eyes closed.
 
 # ACT 3
 ## egirls Z & W & E stood there silently.
