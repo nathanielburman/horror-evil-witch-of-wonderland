@@ -71,6 +71,10 @@ The dragon was hungry and would just asume eat a princess, but princesses are a 
 
 I don't beleive in ragglespanktooth! Me three! Me Four!, Me seven, Me and they just went on forever and ever. I walked away from them when they got to 99. And the path infront of me was still winding. I need to get away from these white meat freaks with meat. I need to get away frmo freaks with white meat. And, I walked onto a main path.
 
+<img src="https://github.com/nathanielburman/horror-evil-witch-of-wonderland/blob/main/1117dream_TradingCard.jpg" width="400px"></img>
+
+The Queen of Hearts hears of most musing that go around Wonderland. If there was just some way you could get her attention. Maybe you can come up with something real quick.
+
 # ACT 3
 ## egirls Z & W & E stood there silently.
 <img src="https://github.com/nathanielburman/horror-evil-witch-of-wonderland/blob/main/1113dream_TradingCard.jpg" width="400px"></img>
