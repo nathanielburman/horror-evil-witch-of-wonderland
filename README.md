@@ -40,6 +40,8 @@ Sun Portal Master +Player: Solarius the Radiant Sovereign\nLore: Solarius is the
 
 Drakon the Abyssal Sovereign\nDrakon is an ancient cat with scales like obsidian. They command the darkest depths of the ocean, guarding the Abyssal Portal to unknown realms.
 
+<img src="https://github.com/nathanielburman/horror-evil-witch-of-wonderland/blob/main/1115dream_TradingCard.jpg" width="400px"></img>
+
 # ACT 3
 ## egirls Z & W & E stood there silently.
 <img src="https://github.com/nathanielburman/horror-evil-witch-of-wonderland/blob/main/1113dream_TradingCard.jpg" width="400px"></img>
