@@ -10,4 +10,5 @@ THeres a maze. many of the people you know in real life are in this story. Your 
 Your going to need to eat in three hours. What are you doing right now?
 
 There is a path surrounded by cats.
-<img src="https://github.com/nathanielburman/horror-evil-witch-of-wonderland/blob/main/11111dream_TradingCard.jpg" width="450px"></img>
+
+<img style="vertical-align:middle" src="https://github.com/nathanielburman/horror-evil-witch-of-wonderland/blob/main/11111dream_TradingCard.jpg" width="450px"></img>
