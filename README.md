@@ -28,11 +28,11 @@ This portal cats special attack rips through the two more eboys standing gaurd i
 
 220rcp1final.png Real Cats & Portals ipfs://QmcjdXy9vYWNzVkWefxhSz7iPwoGB3HxQ5f6rxpNncXqNG/6.png
 
-PURRR Eyes
+PURRR Eyes ( claws or portal )
 
-PREY Mouse
+PREY Mouse ( ghost or bird )
 
-SPIRIT Dark
+SPIRIT Dark ( light or natural )
 
 Eyes of the Astral Seer 75ap sp1: Lore: The \"Eyes of the Astral Seer\" are said to see beyond the physical realm. These cats are known as seers and mystics, with eyes that can perceive hidden truths and alternate dimensions. They are revered for their wisdom and insight.\nAbility: \"Eyes of the Astral Seer\" allows the cat to gaze into the future and predict the movements of their foes. It enhances their accuracy and evasion, granting them an advantage in combat.
 
