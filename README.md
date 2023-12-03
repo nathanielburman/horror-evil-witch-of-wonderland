@@ -42,7 +42,7 @@ Drakon the Abyssal Sovereign\nDrakon is an ancient cat with scales like obsidian
 
 The witch and her homosexual eboys ran off laughing. The witch turned into darkness.
 
-<img src="https://github.com/nathanielburman/horror-evil-witch-of-wonderland/blob/main/1115dream_TradingCard.jpg" width="400px"></img>
+<img src="https://github.com/nathanielburman/horror-evil-witch-of-wonderland/blob/main/1115dream_TradingCard.jpg" width="600px"></img>
 
 The maze winded but I want more kittens right now. There were kittens all over the place. The kittens littered the area. And the cats play a different game in wonderland as they escape a doom of their own. Everyone who enters Wonderland knows of the doom that comes for them if they can't escape. Wonderland is an escape room you never escape from.
 
