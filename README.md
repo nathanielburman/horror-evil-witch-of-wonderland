@@ -21,7 +21,12 @@ There is a path surrounded by cats.
 
 # ACT 2
 ## She meets the witch
-She meets the witch and all the cats meet the witch in a epic battle where cats jumped and pounce onto the enemy with their fluffy coats. Portal cats emerge from teh shadows and more cats attack the witch.
+
+This witch emerges.
+
+<img src="https://github.com/nathanielburman/horror-evil-witch-of-wonderland/blob/main/1112.png" width="600px"></img>
+
+She meets the witch and all the cats meet the witch in a epic battle where cats jumped and pounce onto the enemy with their fluffy coats. Portal cats emerge from the shadows and more cats attack the witch.
 
 <img src="https://github.com/nathanielburman/horror-evil-witch-of-wonderland/blob/main/1112.png" width="450px"></img>
 
