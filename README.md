@@ -61,6 +61,16 @@ The maze winded but I want more kittens right now. There were kittens all over t
 
 The maze is a constant stream of data that goes into your eyes every second of the day. Even if you close your eyes in Wonderland, you will see still. There are two mazes in wonderland, one you can see and the other is eyes closed.
 
+<img src="https://github.com/nathanielburman/horror-evil-witch-of-wonderland/blob/main/1117dream_TradingCard.jpg" width="500px"></img>
+
+There aer lots of little areas in Wonderland no one ever mentions when they get out. Little cubbies and people hiding in little areas that open up into wide new ones. We don't usually go down those paths, because they take days. They take your soul is what they take. Thats why I only go for cat girls. They are special kind of girls that come into Wonderland. Most girls are Alices or Homicidal Alices... and we get bored of those games we play other games on top.
+
+Games like the Off With Her Head Game! Or the Legend of Ragglespankfangs, the dragon that bit too many butts, the dragon council made a decree and said that he would have to eat a princess by twelve oclock noon, high noon or he would be dead.
+
+The dragon was hungry and would just asume eat a princess, but princesses are a dime a dozen around the kingdom. Every girl thinks they are a princess and this completely changes the dimension that a dragon uses to find princesses. So, the dragon flys around a few houses and finds a few princeses. Perfect, plumpy and skinny and juice to the bone. So he gathers up all the princesses and puts them onto the highest peak.
+
+I don't beleive in ragglespanktooth! Me three! Me Four!, Me seven, Me and they just went on forever and ever. I walked away from them when they got to 99. And the path infront of me was still winding. I need to get away from these white meat freaks with meat. I need to get away frmo freaks with white meat. And, I walked onto a main path.
+
 # ACT 3
 ## egirls Z & W & E stood there silently.
 <img src="https://github.com/nathanielburman/horror-evil-witch-of-wonderland/blob/main/1113dream_TradingCard.jpg" width="400px"></img>
