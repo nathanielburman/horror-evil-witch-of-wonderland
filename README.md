@@ -24,6 +24,10 @@ There is a path surrounded by cats.
 
 This witch emerges.
 
+Saying "I am what nightmares are made of!" and she rips into the dimension fully. Her arms and legs and faces not fully emerged. Suddenly, three eboys emerged around her. Eboy 12, eboy 13, eboy 17 pop out of their bubbles and look around at the egirls who are staring at them. "Come on, I thought we were all witches here." The eboy says as he glances around the room.
+
+The mother witch keeps her eyes on the master cat witch.
+
 <img src="https://github.com/nathanielburman/horror-evil-witch-of-wonderland/blob/main/1116dream_TradingCard.jpg" width="600px"></img>
 
 She meets the witch and all the cats meet the witch in a epic battle where cats jumped and pounce onto the enemy with their fluffy coats. Portal cats emerge from the shadows and more cats attack the witch.
