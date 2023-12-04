@@ -83,7 +83,7 @@ I need my cat egirlfriends! I need my kitten egirlfriends! I just saw the cutest
 
 The Queen of Red Hearts and Head. The Evil Gay King of Red The Evil Gay King of Heads.
 
-IMG OF THE PRINCE OF HEADS
+<img src="https://github.com/nathanielburman/horror-evil-witch-of-wonderland/blob/main/1122dream_TradingCard.jpg" width="350px"></img>
 
 His son, the gayest prince is the one that the women are talking about not wanting to be saved from! They call him the dragon.
 ...
