@@ -77,6 +77,17 @@ The Queen of Hearts hears of most musing that go around Wonderland. If there was
 
 Will you, Won't you, Join the dance!
 
+...
+
+I need my cat egirlfriends! I need my kitten egirlfriends! I just saw the cutest and sexiest kitten on Earth. This time she was in a dress and showed cleavage and moved exactly and was a cat girl. I met her like different but she was a cat girl. I only mess with cat girls so stay away from me. You need to stay away from me. I still love women, but women are so complicated these days as a defensive mechanism against something much deadlier. The Queen of Heads. The Queen and Princess of Heads. The Royal Queen of Bloody Heads. The Royal Princess of Rolling Heads. The Royal Grandmother to the Queen of Shrinking Heads. Retarded men of white natured took accord with this lectured. Lewt. You fluffy Lewt. Dont think about it that way. Just die. Be the dead parrot hack they were hacks hack phlem in the back of one's whatever.
+
+The Queen of Red Hearts and Head. The Evil Gay King of Red The Evil Gay King of Heads.
+
+IMG OF THE PRINCE OF HEADS
+
+His son, the gayest prince is the one that the women are talking about not wanting to be saved from! They call him the dragon.
+...
+
 # ACT 3
 ## egirls Z & W & E stood there silently.
 <img src="https://github.com/nathanielburman/horror-evil-witch-of-wonderland/blob/main/1113dream_TradingCard.jpg" width="400px"></img>
