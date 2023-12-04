@@ -86,11 +86,21 @@ The Queen of Red Hearts and Head. The Evil Gay King of Red The Evil Gay King of 
 <img src="https://github.com/nathanielburman/horror-evil-witch-of-wonderland/blob/main/1122dream_TradingCard.jpg" width="350px"></img>
 
 His son, the gayest prince is the one that the women are talking about not wanting to be saved from! They call him the dragon.
+
+
+
+
+
 ...
 
 # ACT 3
 ## This is where they all lose their heads. The King stands over the Queen with his sons, three, standing there all over their mother. And they cut off her head.
 ## You need to get the fuck out of Wonderland or you lose your soul!
+## ...
+## Every redheaded homosexual prince lost his head.
+
+<img src="https://github.com/nathanielburman/horror-evil-witch-of-wonderland/blob/main/1123dream_TradingCard.jpg" width="500px"></img>
+
 ## egirls Z & W & E stood there silently.
 <img src="https://github.com/nathanielburman/horror-evil-witch-of-wonderland/blob/main/1113dream_TradingCard.jpg" width="400px"></img>
 
