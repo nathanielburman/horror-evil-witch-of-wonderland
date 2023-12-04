@@ -89,6 +89,7 @@ His son, the gayest prince is the one that the women are talking about not wanti
 ...
 
 # ACT 3
+## This is where they all lose their heads. The King stands over the Queen with his sons, three, standing there all over their mother. And they cut off her head.
 ## egirls Z & W & E stood there silently.
 <img src="https://github.com/nathanielburman/horror-evil-witch-of-wonderland/blob/main/1113dream_TradingCard.jpg" width="400px"></img>
 
