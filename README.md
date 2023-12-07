@@ -101,6 +101,8 @@ His son, the gayest prince is the one that the women are talking about not wanti
 
 <img src="https://github.com/nathanielburman/horror-evil-witch-of-wonderland/blob/main/1123dream_TradingCard.jpg" width="500px"></img>
 
+They painted their roses red. They painted their heads red! Secret Top Secret! They painted their head red!
+
 ## egirls Z & W & E stood there silently.
 <img src="https://github.com/nathanielburman/horror-evil-witch-of-wonderland/blob/main/1113dream_TradingCard.jpg" width="400px"></img>
 
